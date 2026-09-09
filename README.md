@@ -1,0 +1,2 @@
+# Parcial1BryanDavidGonzalezSincalIVD_15
+Parcial1
